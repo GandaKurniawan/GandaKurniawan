@@ -11,7 +11,7 @@ Here are some ideas to get you started:
 - 💬 Ask me about anything
 - 📫 How to reach me: gandakur09@gmail.com
 - 😄 Pronouns: Me/Min
-- ⚡ Fun fact: I always work to listen to music
+- ⚡ Fun fact: I love music
 
 ### Connect with me:
 
